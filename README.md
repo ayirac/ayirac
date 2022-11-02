@@ -1,1 +1,1 @@
-Hello, my handle is ayirac, and I'm a senior studying computer science. I've completed a few personal projects that are publically available for anyone to view. Take a look and let me know what you think!
+Hello, my handle is ayirac, and I'm a senior studying computer science. I've completed a few personal projects that are publicly available for anyone to view. Take a look and let me know what you think!
